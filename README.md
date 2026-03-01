@@ -5,9 +5,6 @@
 ----------
 ## CLICK <a href="https://www.youtube.com/@Cyberbotcommunity">HERE IF YOU ARE NEW TO BOTS (YOUTUBE)</a>
 
-
-<img src='https://i.imgur.com/ePDUcck.jpeg'/>
-
 -------
 
  <p align="center">
